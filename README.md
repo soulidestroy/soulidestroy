@@ -9,5 +9,9 @@
   ><a href="https://guns.lol/yaraoiiro"><img src="https://files.catbox.moe/itziy2.png" width="150” height="auto"
    <br>                                                                                                                                                                                                                  
  <p align="center"><img src="https://files.catbox.moe/0oqobk.png" width="800" height="auto" align="center"></img></a> <br> 
-
   <p align="center"><img src="https://files.catbox.moe/00e1p2.png" width="550" height="auto" align="center"></img></a>
+<br>
+<p align="center"><img src="https://files.catbox.moe/k30rmn.png" width="700" height="auto" align="center"></img></a>
+<br>
+ <p align="center"><img src="https://files.catbox.moe/5bpkb2.png" width="1000" height="auto" align="center"></img></a> 
+ 
